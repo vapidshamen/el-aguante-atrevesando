@@ -16,3 +16,7 @@ mi idea es ofrecer una traduccion **muy literal** de varias secciones de la bibl
 ### nota personal
 
 aunque, no sea super cristiano -- encuentro muchos simbolos y conceptos encorporado en la doctrina cristiana.
+
+### sistema de lenguaje
+
+uno de mis objectivos es crear un sistema para ayudarme escribir y traducir mis conceptos. me gustaria si mis conceptos tuvieron orden -- para q pueda hacer referencias al concepto y lugar de repetir el concepto cada vez (aunque hay mucho valor en la repeticion xq usualmente en otro contexto/recepiente , el concepto sale un poco diferente) -- entonces, me gustaria tener una forma mas optima de organizar y ver la evolucion de mis conceptos. la otra cosa q me gustaria tener es un programa para trackear las partes no traducidas, sacar mi aprendizaje de la palabra (griego es muy profundo y sistematico) de traducciones anteriores, teniendo notas q mi razonamiento por la traduccion de la palabra. tambien, como q no tengo accentos en mi teclado y accentos para el griego es muy dificil, me gustaria un sistema q puede correjir mis fallos gramaticos (en el espanol) y anadir accentos.
