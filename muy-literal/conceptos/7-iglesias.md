@@ -122,5 +122,25 @@ usualmente, tiene el prefijo α- para sinificar "junto" o "de la misma"
 - "ἀδελφός": ἀ (misma) + Δελφύς (matriz) - de la misma matriz
 
 ## Laodicea
-### Λαοδίκεια
+"justicia para el pueblo"
 
+### Λαοδίκεια
+palabra compuesta de Λαο + δίκεια
+#### Λαο
+nombre masculino acusativo singular de "λαός" (significa: al pueblo/poblacion/gente).
+
+#### δίκεια
+
+una forma de verlo es como pronombre:
+- δικός (mio): masculino singular
+- δικές (mias): feminino plural
+- δικιά (mia): feminino singular
+
+otra forma de verlo es convertir un ajectivo o verbo para significar q tiene su calidad:
+- "ἀληθής" (la verdad) -> "ἀλήθεια" (es verdadero)
+- "ὠφελέω" (yo ayudo) -> "ὠφέλεια" (esta ayudado)
+- "ἐπιμελής" (la cuidad) -> "ἐπιμέλεια" (es cuidado)
+
+mas aun, contiene la palabra δίκη (justicia/rectitud).
+
+[el problema es q estoy llegando al limite de mi conocimiento del griego, entonces es dificil parsear lo q es el juego de la palabras. puede ser de posesion, o puede ser de justicia (ser juez del pueblo) -- pero es dificil entender xq el nombre acusativo (al q recibe el verbo) es masculino, pero la terminacion de dike (justicia/rectitud) es feminina. lo voy a revisitar despues de traducir [apocalipsis-3](../NT/apocalipsis-3.md)]
