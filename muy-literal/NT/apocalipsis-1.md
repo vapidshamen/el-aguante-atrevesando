@@ -13,4 +13,10 @@ llege a estar en el espiritu en el dia del senor; y me escuche detras de mi un t
 declarando: yo soy la alpha y la omega, el empiezo/primero y el acabo/ultimo y lo q ves, escribe en un libro y mandalo a las siete iglesias ante/hacia [éfeso](../conceptos/7-iglesias.md#éfeso) y ante/hacia [esmirna](../conceptos/7-iglesias.md#esmirna) y ante/hacia [pergamo](../conceptos/7-iglesias.md#pergamo) y ante/hacia [tiatira](../conceptos/7-iglesias.md#tiatira) y ante/hacia [sardis](../conceptos/7-iglesias.md#sardis) y ante/hacia [filadelfia](../conceptos/7-iglesias.md#filadelfia) y ante/hacia [leodicea](../conceptos/7-iglesias.md#leodicea)
 y tras giro, veo a la voz, la cual hablaba [intimamente](../conceptos/contracciones-intimas.md) conmigo -- y habiendo vuelto mi giro, veo siete farolas de oro;
 y en medio de las farolas [uno] semejante al hijo del hombre {vestido | puesto dentro} [y] llenado de pies y sobre atado/amarrado hacia los pechos con una correa de oro;
-la entonces su rostro y sus pelos blancos {encima-siendo | encima-estando} [tiene doble significado: "mas q blanco" y "blanco por encima"], blanco como nieve; y sus ojos como un destello de fuego
+la entonces su rostro y sus pelos blancos {sobresiendo (mas q blanco) | sobreestando (blanco por encima)}, blanco como nieve; y sus ojos como un destello de fuego
+y sus pies semejantes a metal/dinero brillante/deseable como [si fuera] derretido en un horno y su voz como la voz de muchas aguas;
+y sostenidas en su diestra siete estrellas; y disparando de su boca una espada larga y ancha; y la cara de el como helios emitiendo en su capacidad/poder
+y cuando le veo, caigo delante sus pies como muerto; y se pone su diestra hacia mi, diciendo: no temes! yo soy el empiezo/primero, el acabo/ultimo,
+y el vivo; me converti muerto, y he aqui vivo estoy dentro de los eones de los eones; tengo el cierre de tanatos y de hades;
+escribe ciertamente [para q vean] las q ves, las q son, y las siendo con estas:
+el misterio de las siete estrellas q ves sobre mi diestra y a las siete farolas de oro: las siete estrellas, son los siete angeles de las siete iglesias, y las siete farolas son las siete iglesias.
