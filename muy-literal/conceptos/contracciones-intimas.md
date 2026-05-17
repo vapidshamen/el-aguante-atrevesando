@@ -35,7 +35,7 @@ ejemplos:
 	- "eli eli lema sabachthani: por ellos es -- dios de mi, dios de mi -- por el cual a mi, me {serias desalargado | estabas bajado}
 - (heb 13:15)
 	- "δι’ αὐτοῦ οὖν ἀναφέρωμεν θυσίαν αἰνέσεως διὰ παντὸς τῷ θεῷ, τοῦτ’ ἔστιν καρπὸν χειλέων ὁμολογούντων τῷ ὀνόματι αὐτοῦ"
-	- "atravesando de el aun, ofrezcamos el sacrificio del narrativo por todo
+	- "[atravesando por el](#δι) aun, ofrezcamos el sacrificio de [una narrativa](./alabanza.md#narrar) a traves de todo al dios [por lo cual](#τοῦτ) es el fruto de orillas [de la misma palabra](./confesar.md) al [nombre](./nombre.md) de el"
 
 ### ejemplos
 

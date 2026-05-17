@@ -11,3 +11,10 @@
 λίψ (tener anhelo/antojo/deseo)
 - λιπαρής (persistente/obstinante, ferviente, tenaz)
 - λῑ́πτω (deseo fuerte)
+
+[TODO]
+
+#### ejemplos
+
+[TODO - les manda a sus disipulos sin dinero]
+[TODO - conexion a: ir al mercado a comprar (rev 3:18, mateo 25:10)]
