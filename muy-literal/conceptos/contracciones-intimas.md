@@ -3,17 +3,22 @@ muchas veces habia notado q en ciertas frases unas preposiciones tienen una cont
 
 #### μετ’
 - con
+
 #### ἐπ’
 - sobre
 - encima
 - contra
 - hacia
+
 #### ἐφ’
 - por
 - contra
 - montar
 - "mas de"
 - "mayor que"
+
+ejemplos:
+- ἐφ' ἵππον ἀναβαίνειν - montar [por encima de] un caballo
 
 #### δ'
 siempre encontrado como "δ' ἂν" [pero no es por la letra xq mateo 15:20 tiene "τὸ δὲ ἀνίπτοις" y 5:31 tiene "τὸ δὲ ἀνίπτοις"]
@@ -37,6 +42,17 @@ ejemplos:
 	- "δι’ αὐτοῦ οὖν ἀναφέρωμεν θυσίαν αἰνέσεως διὰ παντὸς τῷ θεῷ, τοῦτ’ ἔστιν καρπὸν χειλέων ὁμολογούντων τῷ ὀνόματι αὐτοῦ"
 	- "[atravesando por el](#δι) aun, ofrezcamos el sacrificio de [una narrativa](./alabanza.md#narrar) a traves de todo al dios [por lo cual](#τοῦτ) es el fruto de orillas [de la misma palabra](./confesar.md) al [nombre](./nombre.md) de el"
 
-### ejemplos
+#### ἀπ’
+contraccion de ἀπό:
+- desde
+- a por
+- veniendo {de | a por}
 
-- ἐφ' ἵππον ἀναβαίνειν - montar [por encima de] un caballo
+#### κατ'
+contraccion de κατά:
+- dentro
+- 
+
+ejemplos:
+- (mateo 2:12) "καὶ χρηματισθέντες κατ’ ὄναρ μὴ ἀνακάμψαι πρὸς Ἡρῴδην δι’ ἄλλης ὁδοῦ ἀνεχώρησαν εἰς τὴν χώραν αὐτῶν"
+	- "y 
