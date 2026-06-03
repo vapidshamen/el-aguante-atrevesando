@@ -1,6 +1,6 @@
 # 7-iglesias
 
-las siete iglesias de apocalipsis tienen significado encodificado
+las siete iglesias de apocalipsis tienen significado encodificado [TODO]
 
 ## Éfeso
 puede significar:
@@ -132,7 +132,11 @@ como q el mensaje a esa iglesia es para ellos q les nombran "vivos y muertos" (c
 
 
 ## Filadelfia
-"amado hermano"
+puede significar:
+- normalmente traducida a "hermano amado" (philo + adelphus)
+	- pero philo es mas como "aficionado" (gente con el mismo amor -- o gente atraida a la misma cosa)
+- "aficionados/atraidos a hermanos"
+- "aficionados a delphi" (puede ser por los juegos, los oraclos, no se...)
 
 ### Φιλαδέλφεια
 #### Φιλ-
@@ -143,6 +147,8 @@ el prefijo sinifica amor o affeccion al sufijo. φίλος es la fuerza q atrae 
 	- afiliados: juntados de algo en comun
 - nikos/νεῖκος (atacar, provocar, insultar, abusar)
 	- nike/νίκη (victoria): 
+
+filos es la fuerza q atrae personas a juntarse/unirse y la fuerza opuesta es nikos (dispersar, separar). nike (la victoria) es cuando el enemigo esta dispersado: ya no esta unido.
 
 #### δέλφεια
 la raiz "Δελφ" tiene varios significados:

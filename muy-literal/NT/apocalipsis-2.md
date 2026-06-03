@@ -11,7 +11,10 @@ el teniendo a una oreja para oir, escuche a lo q el espiritu dice a las iglesias
 yo conozco a ti a la presion/dificultad a la pobreza/destitucion ([pero] realmente/ademas rico eres) -- y la vilificacion desde de estos llamandose judios a sus mismos, pero no los son -- pero realmente es una sinogoga de satanas
 [no] temes a nadie por lo q vas a sufrir. mira! va a echar el diablo de vosotros en guardia para q seais puestos a prueba y tendreis presion/dificultad de diez dias; sé fiel al fondo a la muerte y te dare a ti la corona de la vida;
 el teniendo a una oreja, escuche lo q el espiritu dice a las iglesias: al q triunfa, {no estuviera afectado de la [injusticia/derechura](../conceptos/rectitud.md) {del tanatos el segundo | de la muerte del segundo [tipo]} | estuviera afectado a por la justica/rectitud del {tanatos el segundo}}.
-~~y~~ al angel en la iglesia de [pergamo](../conceptos/7-iglesias.md#pergamo)
+~~y~~ al angel en la iglesia de [pergamo](../conceptos/7-iglesias.md#pergamo), escribe: estas [palabras] dice el teniendo la espada afilada [larga y ancha] de doble filo:
+yo percibo en donde moras, [y] donde este el trono de satanas -- y sostienes [(con vigor/fuerza)] al nombre de mi; no negaste a mi fe -- y en los dias [{de antipas | en contra al padre}](../conceptos/antipas.md), el testigo de mi, el fiel de mi, el de matarlo entre vosotros (donde more satanas)
+pero tengo bajo/contra de ti unas cositas, por lo tanto, tienes algunos por ahi, los q retienen a la ensenanza de balaam
+
 
 
 
