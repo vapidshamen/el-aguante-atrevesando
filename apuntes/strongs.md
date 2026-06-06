@@ -10,13 +10,21 @@ when a man has sex with a free citizen woman; slaves and prostitutes are OK (whi
 the men stood/erected
 
 δακτύλῳ (not sure why this is "finger")
-bite + thickening of the skin (like a callus or swelling) -- bite/sting of the skin thickening
+bite + thickening of the skin (like a callus or swelling)
+bite/sting of the skin thickening
+aumento de piel
+picadura inflamada
 
 κατηγορέω (not sure why this is "accuse")
 down-marketing (reducing the value of something or make it seem worthless)
 down-expose (has the illusing of bringing someone down to the town square / marketplace -- presented to the public)
 down-town (fun time in the town)
 taken for a ride (being given the illusion of something to make a sale or get something out of them)
+desapreciar 
+
+κατακρίνω
+looked down on
+desdeñar
 
 κυπτό (not "stoop down")
 bend down or bend forward
@@ -35,3 +43,6 @@ land/soil workers
 
 καταλύω (not "destroying")
 down-loosening
+
+οὖν (not "therefore")
+aun/moreover
