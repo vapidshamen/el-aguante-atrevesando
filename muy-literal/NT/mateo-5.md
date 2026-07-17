@@ -47,7 +47,7 @@ habeis oido q fue dicho: q amas a tu projimo, y odias a tu enemigo?
 {para q | asi como cual} seáis hijos del padre de vosotros (quien esta en los uranos/cielos) -- por su sol asi levanta sobre la maldad y la bondad [igualmente], y [tb] llueve sobre los rectos y no rectos.
 por si ames a los q te aman, q recompensa tieneis? ocaso [q hasta] los recautadores de impuestos hacen lo mismo?
 y si saludes a los hermanos de vosotros solamente, que sobreabundamente haceis? ocaso q tambien los de otras cultuas hacen lo mismo?
-fuereis, aun/entonces {perfectos | desarollados a vustra mejor expresión}, {hasta asi | como} el padre de vosotros, el cielo/urano {es perfecto | se está desarollado a su mejor expresión}
+fuereis, aun/entonces {perfectos | desarollados a vustra máxima/mejor expresión}, {hasta asi | como} el padre de vosotros, el cielo/urano {es perfecto | se está desarollado hacia/a su máxima/mejor expresión}
 
 [1]: la imagen dada está vinculada a imagen dada en salmos 23:1-2
 [2]: probablemente no esta hablando de [dios](../conceptos/dios.md), pero del emperio romano (como un contraste a la rebelión judía)
