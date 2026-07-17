@@ -24,5 +24,30 @@ oísteis lo q se dijo a los antiguos: no matarás; [y] el que asi mate, embulcra
 de [esto], yo os digo que cualquiera enojado con su hermano, embulcrado será al juicio; [y] cualquiera de [q] asi diga a su hermano: insuficiente! embulcrado será ante {juntos-firmes | [sanedrin](../conceptos/sanedrin.md)}; [y] cualquiera de [q] asi diga: moros/pardillo! [TODO - esta es la misma palabra ([μωρός](https://biblehub.com/greek/3474.htm)) q 5 de las 10 virgenes (otra parte q me gustaria traducir). tengo q hacer el concepto de la porcion en contexto al pecado y todo eso -- pero es tiempo para parar para ahora...], embulcrado estará al [infierno](../conceptos/infierno.md) de fuego.
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+habeis oido q fue dicho: q amas a tu projimo, y odias a tu enemigo?
+{y de | sobre} esto, yo os digo: amad a vuestros enemigos y {orad | desead lo mejor ante/hacia dios} sobre aquellos persiguiéndoos: bendecid a los que os maldicen, [y] haced {bien a | lo mejor para} los que os sobre-difaman (y odiendoos); {orad por | desead lo mejor ante/hacia dios para} los q os insultan y [los q] os persiguen.
+{para q | asi como cual} seáis hijos del padre de vosotros (quien esta en los uranos/cielos) -- por su sol asi levanta sobre la maldad y la bondad [igualmente], y [tb] llueve sobre los rectos y no rectos.
+por si ames a los q te aman, q recompensa tieneis? ocaso [q hasta] los recautadores de impuestos hacen lo mismo?
+y si saludes a los hermanos de vosotros solamente, que sobreabundamente haceis? ocaso q tambien los de otras cultuas hacen lo mismo?
+fuereis, aun/entonces {perfectos | desarollados a vustra mejor expresión}, {hasta asi | como} el padre de vosotros, el cielo/urano {es perfecto | se está desarollado a su mejor expresión}
+
 [1]: la imagen dada está vinculada a imagen dada en salmos 23:1-2
 [2]: probablemente no esta hablando de [dios](../conceptos/dios.md), pero del emperio romano (como un contraste a la rebelión judía)
