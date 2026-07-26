@@ -2,14 +2,14 @@
 
 
 
-bendecidos los pobres del espiritu, por de ellos, es el reino de los uranos/cielos.
-bendecidos los de luto, por [entonces] ellos {serán llamados | estaáan traidos cerca}.
-bendecidos los {del camino medio (ni propenso a la ira ni capaz de enojarse) | no fuertes | impotentes | mansodumbres}, por ellos heredarán la tierra.
-bendecidos los con hambre y sed por rectitud, por [a] ellos estaran {llenos/satisfechos | dado mucha hierba | llevados a {la pastura[^pastura] | un jardin}}.
-bendecidos los misericoriosos, por ellos recibirán misericoria
-bendecidos los {puros | hechos asi como son | cuales abajo estan hechos} del corazón, por ellos verán a dios.
-bendecidos los {pacificadores | q se comportan pacificamente | q crean paz}, por ellos estaran llamados hijos del {dios | emperador | pontestado empoderado}[^dios]
-bendecidos los q padecen persecución por causa de rectitud, por suyos es el reino de los uranoses/cielos.
+bendecidos [son] los pobres {pobres, xq para sus espiritus | del espiritu, xq de ellos} es el reino de los uranos/cielos.
+bendecidos [son] los de luto, xq ellos {serán llamados | estarán traidos cerca}.
+bendecidos [son] los {del camino medio [(ni propenso a la ira ni capaz de enojarse)] | mansos | no fuertes | impotentes}, xq ellos heredarán la tierra.
+bendecidos [son] los q tienen hambre y sed de rectitud, xq pues asi ellos estarán {llevados a {la pastura[^pastura] | un jardin} y {saciados/llenados | dado mucha hierba}}.
+bendecidos [son] los misericordiosos, pues asi ellos {recibirán/alcanzarán | serán tratados con} misericordia.
+bendecidos [son] los {puros/claros | hechos asi como son | cuales abajo estan hechos} del corazón, por ellos verán a dios.
+bendecidos [son] los {pacificadores | q se comportan pacificamente | q crean paz}, por ellos estarán llamados hijos del {dios | emperador | pontestado empoderado}[^dios]
+bendecidos [son] los q padecen persecución por causa de rectitud, por suyos es el reino de los uranoses/cielos.
 bendecidos sois cuando os difaman (hacen mala vuestra reputacion), ~~y~~ os persigan, y digan toda clase de herida contra vosotros, mintiendo por causa de mi;
 gozad y alegrad/saltad, por la recompensa de vosotros es grande en los uranoses/cielos; así les persiguieron a los profetas, los {frente a | q fueron antes de} vosotros.
 vosotros sois la [sal](../conceptos/sal.md) de la tierra; si de la sal se vuelve soso en lo q estará echada, para nada es potente ahora, y si no habiendo echado fuera bajo-pateado bajo los hombres.
@@ -28,8 +28,8 @@ sé agradable/simpático a tu {acusador | anti-justicia} rapidamente, mientras q
 amen. te digo yo: no te saldres de ahi, hasta [q] asi hayas pagado el ultimo cuadrante/centimo
 oísteis que se dijo: no cometerás [adulterio](../conceptos/adulterio.md)
 yo de eso, os digo: q cualquiera {echando un vistazo | percibiendo/mirando} la mujer [{hacia sobre-desearla | con rabia sobre ella | hacia desear matarla | a poner el corazón hacia ella | hacia apasionarse por ella}](../conceptos/desear.md), ahora ya adulteró con ella en su corazón.
-de eso, si tu ojo diestro te {pone un impedimento | escandaliza}, quitalo y echalo fuera de ti; te acuerdas/concordas de ti por para ti [es mejor] q se destruya uno de tus miembros y [q] no [sea] tu cuerpo entero [q] se eche hasta al [infierno](../conceptos/infierno.md)
-y si tu mano diestra te {pone un impedimento | escandaliza}, cortala y echala fuera de ti; te acuerdas/concordas de ti por para ti [es mejor] q se destruya uno de tus miembros y [q] no [sea] tu cuerpo entero [q] se eche hasta al [infierno](../conceptos/infierno.md)
+{por ende, | y sobre eso:} si tu ojo diestro te {pone un impedimento | escandaliza}, quitalo y echalo fuera de ti; te acuerdas/concordas de ti por para ti [es mejor] q se destruya uno de tus miembros y [q] no [sea] tu cuerpo entero [q] se eche hasta al [infierno](../conceptos/infierno.md)
+{por ende | y} si tu mano diestra te {pone un impedimento | escandaliza}, cortala y echala fuera de ti; te acuerdas/concordas de ti por para ti [es mejor] q se destruya uno de tus miembros y [q] no [sea] tu cuerpo entero [q] se eche hasta al [infierno](../conceptos/infierno.md)
 se dijo de eso [tb]: asimismo cualquiera q [{le mande a su mujer fuera | se divorcie a su mujer | la suelte a su mujer abajo}](../conceptos/divorciarse.md)[^mandar], dale a ella {una posición firme | un sitio abajo/inferior}.
 [y] de eso, yo os digo q cualquiera {mandando fuera | soltandola abajo} su mujer (menos por cuenta de {cobrar por el sexo | imoralidad sexual}) le hace a ella cometer [adulterio](../conceptos/adulterio.md); y el, si se case con la divorciada, [tb] comete adulterio. [^adulterio]
 {otro angulo | otra resonancia}: oísteis q se dijo a los antiguos: no sobre/contra {juramentarás | establecerás límites}; {recompensarás} de eso al senor sus {juramentos | límites establecidos} [TODO - I need to figure out a better way to translate this; it means, "don't say your commitments/capacity/boundaries are more than they are; you shall give repayment of the lord to your commitments/capacity/boundaries" (ie, your commitments/capacities/boundaries are repayed by the lord)]
@@ -43,10 +43,10 @@ y a él resolviendo a llevarte al tribunal para quitarte tu ropa interior, {rín
 y cualquiera q a ti te forzará ir una milla somete con el dos;
 y a él pidiendote, da; y a él deseando un préstamo de ti, {no lo rechazes | no le vuelvas a mandar}
 oísteis que se dijo: amas a tu projimo, y odias a tu enemigo?
-sobre esto, yo os digo: amad a vuestros enemigos y {orad | desead lo mejor ante/hacia dios} sobre aquellos persiguiéndoos: bendecid a los que os maldicen, [y] haced {bien a | lo mejor para} los que os sobre-difaman (y odiendoos); {orad por | desead lo mejor ante/hacia dios para} los q os insultan y [los q] os persiguen.
-{para q | asi como cual} seáis hijos del padre de vosotros (quien esta en los uranos/cielos) -- por asi su sol levanta sobre la maldad y la bondad, y [tb] llueve sobre los rectos y no rectos.
-por [asi] si ames a los q te aman, q recompensa tieneis? ocaso q [hasta] los recautadores de impuestos hacen lo mismo?
-y si saludes a los hermanos de vosotros solamente, que haceis [de] sobre-abundancia? ocaso q tambien los de otras cultuas hacen lo mismo?
+{sobre esto |}, yo os digo: amad a vuestros enemigos y {orad | desead lo mejor ante/hacia dios}; sobre aquellos persiguiéndoos: bendecid a los que os maldicen, [y] haced {bien a | lo mejor para} los que os sobre-difaman (y odiendoos); {orad por | desead lo mejor ante/hacia dios para} los q os insultan y [los q] os persiguen.
+{asi tb | asi como cual} seáis hijos del padre de vosotros ({quien | él q} esta en los uranos/cielos); xq [asi] [hace q] su sol se levanta tanto sobre la maldad y sobre la bondad, {y [lo mismo]: | asi como} llueve tanto sobre los rectos/justos y sobre {los no rectos | indirectos}, 
+{ansí | por [asi]}, si ames a los q te aman, q recompensa tieneis? ocaso q [hasta] los recautadores de impuestos hacen lo mismo;
+y si saludes a los hermanos de vosotros solamente, que haceis vosotros [de] sobre-abundancia? ocaso q tambien los de otras cultuas hacen lo mismo?
 fuereis, [entonces] aun {desarrollados a vuestra máxima/mejor expresión | perfectos}, {hasta asi | como} el padre de vosotros, el cielo/urano {se está desarrollado hacia/a su máxima/mejor expresión | es perfecto}.
 
 #### comentarios
