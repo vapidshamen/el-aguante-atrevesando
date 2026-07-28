@@ -2,15 +2,15 @@
 
 
 
-bendecidos [son] los pobres {pobres, xq para sus espiritus | del espiritu, xq de ellos} es el reino de los uranos/cielos.
-bendecidos [son] los de luto, xq ellos {serán llamados | estarán traidos cerca}.
-bendecidos [son] los {del camino medio [(ni propenso a la ira ni capaz de enojarse)] | mansos | no fuertes | impotentes}, xq ellos heredarán la tierra.
-bendecidos [son] los q tienen hambre y sed de rectitud, xq pues asi ellos estarán {llevados a {la pastura[^pastura] | un jardin} y {saciados/llenados | dado mucha hierba}}.
-bendecidos [son] los misericordiosos, pues asi ellos {recibirán/alcanzarán | serán tratados con} misericordia.
-bendecidos [son] los {puros/claros | hechos asi como son | cuales abajo estan hechos} del corazón, por ellos verán a dios.
-bendecidos [son] los {pacificadores | q se comportan pacificamente | q crean paz}, por ellos estarán llamados hijos del {dios | emperador | pontestado empoderado}[^dios]
-bendecidos [son] los q padecen persecución por causa de rectitud, por suyos es el reino de los uranoses/cielos.
-bendecidos sois cuando os difaman (hacen mala vuestra reputacion), ~~y~~ os persigan, y digan toda clase de herida contra vosotros, mintiendo por causa de mi;
+{bien dados | bendecidos} [son] los pobres del espiritu, xq de ellos es el reino de los uranos/cielos.
+{bien dados | bendecidos} [son] los de luto, xq ellos {serán llamados | estarán traidos cerca}.
+{bien dados | bendecidos} [son] los {del camino medio [(ni propenso a la ira ni capaz de enojarse)] | mansos | no fuertes | impotentes}, xq ellos heredarán la tierra.
+{bien dados | bendecidos} [son] los q tienen hambre y sed de rectitud, xq pues asi ellos estarán {llevados a {la pastura[^pastura] | un jardin} y {saciados/llenados | dado mucha hierba}}.
+{bien dados | bendecidos} [son] los misericordiosos, pues asi ellos {recibirán/alcanzarán | serán tratados con} misericordia.
+{bien dados | bendecidos} [son] los {puros/claros | hechos asi como son | cuales abajo estan hechos} del corazón, por ellos verán a dios.
+{bien dados | bendecidos} [son] los {pacificadores | q se comportan pacificamente | q crean paz}, por ellos estarán llamados hijos del {dios | emperador | pontestado empoderado}[^dios]
+{bien dados | bendecidos} [son] los q padecen persecución por causa de rectitud, por suyos es el reino de los uranoses/cielos.
+{bien dados | bendecidos} sois cuando os difaman (hacen mala vuestra reputacion), ~~y~~ os persigan, y digan toda clase de herida contra vosotros, mintiendo por causa de mi;
 gozad y alegrad/saltad, por la recompensa de vosotros es grande en los uranoses/cielos; así les persiguieron a los profetas, los {frente a | q fueron antes de} vosotros.
 vosotros sois la [sal](../conceptos/sal.md) de la tierra; si de la sal se vuelve soso en lo q estará echada, para nada es potente ahora, y si no habiendo echado fuera bajo-pateado bajo los hombres.
 sois la luz [{de la estructura | del cosmo/mundo}](../conceptos/cosmos.md): no se puede esconder [{una poblacion/ciudad situada | un pueblo situado}](../conceptos/ciudad.md) sobre una colina.
@@ -35,14 +35,14 @@ se dijo de eso [tb]: asimismo cualquiera q [{le mande a su mujer fuera | se divo
 {otro angulo | otra resonancia}: oísteis q se dijo a los antiguos: no sobre/contra {juramentarás | establecerás límites}; {recompensarás} de eso al senor sus {juramentos | límites establecidos} [TODO - I need to figure out a better way to translate this; it means, "don't say your commitments/capacity/boundaries are more than they are; you shall give repayment of the lord to your commitments/capacity/boundaries" (ie, your commitments/capacities/boundaries are repayed by the lord)]
 de eso, yo os digo: no {juramentes | estabelices límites} de nada, ni en el urano/cielo, xq es el trono de dios;
 ni en la tierra, xq es el reposapiés de sus pies; ni por jerusalenes[^jerusalen] xq es [{la poblacion | el pueblo}](../conceptos/ciudad.md) del rey.
-ni en su cabeza/mente {juramentes | estabelices límites}, xq no puedes hacer blanco o negro a un solo cabello.
-sobre eso, sea vuestro dicho: sí, sí; y no, no; [y] sobre esto: cualquier [cosa] más [q] esto, procede de la maldad.
+ni en su cabeza/mente {juramentes | estabelices límites}, xq no puedes hacer brillante/blanco o negro a un solo cabello.
+sobre eso, sea vuestro dicho: sí, sí; y no, no; [y] sobre esto: cualquier [cosa] más [d] esto, procede de {[intenciones] malicias | la maldad}.
 oísteis que se dijo: ojo contra ojo y diente contra diente[^contra];
 yo sobre eso, os digo: no {resistirse | oponerse | ponerse en contra} al malo, sino cualquiera q te de un manotazo sobre tu mejilla derecha, vuélvele tb la otra;
 y a él resolviendo a llevarte al tribunal para quitarte tu ropa interior, {ríndase a él | permitele}, y [dale] tu {ropa exterior | manto} [tb];
 y cualquiera q a ti te forzará ir una milla somete con el dos;
 y a él pidiendote, da; y a él deseando un préstamo de ti, {no lo rechazes | no le vuelvas a mandar}
-oísteis que se dijo: amas a tu projimo, y odias a tu enemigo?
+oísteis que se dijo: amaras a tu projimo, y odiaras a tu enemigo?
 {sobre esto |}, yo os digo: amad a vuestros enemigos y {orad | desead lo mejor ante/hacia dios}; sobre aquellos persiguiéndoos: bendecid a los que os maldicen, [y] haced {bien a | lo mejor para} los que os sobre-difaman (y odiendoos); {orad por | desead lo mejor ante/hacia dios para} los q os insultan y [los q] os persiguen.
 {asi tb | asi como cual} seáis hijos del padre de vosotros ({quien | él q} esta en los uranos/cielos); xq [asi] [hace q] su sol se levanta tanto sobre la maldad y sobre la bondad, {y [lo mismo]: | asi como} llueve tanto sobre los rectos/justos y sobre {los no rectos | indirectos}, 
 {ansí | por [asi]}, si ames a los q te aman, q recompensa tieneis? ocaso q [hasta] los recautadores de impuestos hacen lo mismo;
