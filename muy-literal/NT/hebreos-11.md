@@ -1,0 +1,42 @@
+# hebreos-11
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+y todas estas [cosas] que recibieron buen testimonio/aprobación a traves de su fe no recibieron la promesa
+de dios para nosotros: mas fuerte/mejor es algo previsto, para q (no quitando a nosotros) sean {perfeccionados | desarrollados hacia/a su máxima/mejor expresión}
