@@ -17,7 +17,7 @@ sois la luz [{de la estructura | del cosmo/mundo}](../conceptos/cosmos.md): no s
 ni encienden a una lampara y la ponen debajo de una cesta; sino [se pone] sobre un candelero y se hace luz para todos los [q estan] en la casa;
 entonces, brille la luz de vosotros ante los hombres, (para q vean a vuestras buenas obras y [para] q glorifiquen al padre de vosotros): él en los uranoses/cielos.
 no penséis que he venido para bajo-aflojar/abrogar la ley o los profetas; no he venido para bajo-aflojar/abrogar, sino para {llenarla | cumplirala | llevarla a cabo},
-amen. por [entonces] digo yo [esto] a vosotros: asi hasta todo se acerca: el urano/cielo y la tierra, ni un paso ni punto se acercare fuera de la ley, hasta [q] asi todo se manifieste;
+amen. por [eso] yo os digo: hasta asi se hubiera venido el urano/cielo y la tierra, ni un paso ni punto se hubiera venido fuera de la ley hasta [q] todo se manifieste;
 si alguien aun afloje a unos de los mandamentos estos mas pequenos, y asi enseñe a los hombres, muy pequeño será llamado en el reino de los uranoses/cielos; de quien [q sea] asi, [él q lo] practique y [él q lo] enseñe, éste será llamado grande en el reino de los cielos/uranoses.
 digo yo a vosotros: por si no sobreabunde vuestra rectitud {sobre | mas arriba q} todos los escribas y fariseos, no nunca entraréis en el reino de los cielos/uranoses.
 oísteis lo q se dijo a los antiguos: no matarás; [y] asi el que mate, embulcrado será [él] al juicio;
