@@ -47,7 +47,7 @@ oísteis que se dijo: amaras a tu projimo, y odiaras a tu enemigo?
 {asi tb | asi como cual} seáis hijos del padre de vosotros ({quien | él q} esta en los uranos/cielos); xq [asi] [hace q] su sol se levanta tanto sobre la maldad y sobre la bondad, {y [lo mismo]: | asi como} llueve tanto sobre los rectos/justos y sobre {los no rectos | indirectos}, 
 {ansí | por [asi]}, si ames a los q te aman, q recompensa tieneis? ocaso q [hasta] los recautadores de impuestos hacen lo mismo;
 y si saludes a los hermanos de vosotros solamente, que haceis vosotros [de] sobre-abundancia? ocaso q tambien los de otras cultuas hacen lo mismo?
-fuereis, [entonces] aun {desarrollados a vuestra máxima/mejor expresión | perfectos}, {hasta asi | como} el padre de vosotros, el cielo/urano {se está desarrollado hacia/a su máxima/mejor expresión | es perfecto}.
+fuereis, [entonces] aun {desarrollados a vuestra máxima/mejor expresión | perfectos}, {hasta asi | como} el padre de vosotros, {urano | el cielo} {se está desarrollado hacia/a su máxima/mejor expresión | es perfecto}.
 
 #### comentarios
 

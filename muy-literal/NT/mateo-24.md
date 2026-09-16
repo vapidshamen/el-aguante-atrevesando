@@ -45,8 +45,6 @@ dos [mujeres] estaran {[moliendo](../conceptos/moler.md) ἀλήθουσαι [TO
 #### notas
 
 ἐρήμωσις erémósis
-ἐρή/ἐρέω/ἐρῶ (dirá) + μωσις (suena: mósis)
+ἐρή/ἐρέω/ἐρῶ (dirá) + μωσις (suena: μωυσῆς/mósis)
 
-tambien la segunda palabra (μωσις) suena muy similar a μωυσῆς (moises)
-
-The Greek word μῶσις means a sucking or suction, derived from the verb mōmai (μῶμαι).
+escuchando la palabra, se oiria "dirá moisés".
