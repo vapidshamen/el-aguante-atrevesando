@@ -1,7 +1,6 @@
 # particulas-de-conexion
 
-#### causualidad y reflectividad (ὅτι/γὰρ)
-
+#### causualidad y reflectividad (ὅτι/γὰρ/ἄρα) [TODO - separate this better and distinguish better between the different senses in which to use the word]
 - "por cuanto" (pc): por esa causa/razon previa, el siguiente
 - "puesto que" (pq): como q es cierto q el previo es verdad, entonces el siguiente
 - "porque" (xq): la razon por el previo, es el siguiente
@@ -49,4 +48,3 @@
 - "πρός": {hacia | perteniciendo a [gen] | cerca de [dat] | } (donde llegara o su relacion al final)
 - "ἐκ/ἐξ": {hacia fuera | fuera de | viniendo de} (el punto en q empieza su mocion)
 - "εἰς": {a/de/hacia | hacia dentro} (mocion hacia un punto [de penetracion/union])
-
