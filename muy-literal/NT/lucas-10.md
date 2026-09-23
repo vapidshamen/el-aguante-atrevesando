@@ -36,4 +36,4 @@ un sameritanto caminando vino bajo él, y {habiendo visto | habiéndole visto} {
 sobre-pateandole encima/ademas sobre su bestia, le llevó/trajó a {un todo-bienvenido | una posada {para todos | publica}} y {sobre-preocupó por | cuidó sobre} él;
 y sobre el frescor {echandole/lanzandole | después de haberlo lanzado} dos dinari al {todo-bienvienido | regente de la posada}, ~~y~~ dijo: preocupa/cuida sobre él; y lo q asi gastes por encima, yo en la {sobre-entre-venida | sobre-venida en medio} yo te [lo] daré/repagaré.
 cuáles de estos tres parece a ti el prójimo para él de haber llegado a ser, habiendo caido en medio dentro [de] los saqueadores?
-él, sobre eso, dijo: él habiendo hecho/mostrado la misericoria con él. dijo jesus {entonces | sobre eso}: atravese[lo] tu y {{haz de | muestra} esa misma manera | haz lo mismo}.
+él, sobre eso, dijo: él habiendo hecho/mostrado la misericoria con él. dijo jesus {entonces | sobre eso}: atravese[{lo | la tribulacion}] tu y {{haz de | muestra} esa misma manera | haz lo mismo}.

@@ -1,8 +1,8 @@
 # mateo-24
 
-
-
-
+y jesus habiendo venido desde el {lugar sagrado | templo} [lo] atrevesaba, y vinieron sus discipulos a sobre-mostrar/sobre-apuntar a el, {el techo de la morada | la estructura/arquitectura} del {lugar sagrado | templo}
+y el, sobre eso {decerniendolo/conociendolo} les dijo: no perceibeis todas esas cosas? amen, yo os digo: no ninguna la hubieran echada/perdonada/despedida/liberada roca sobre roca, la cual no bajo-aflojara/bajo-abrogara
+{de aquela que se firma hacia abajo | de la que mora firme | de la que está sentado} por encima de el sobre el monte de olivas.
 
 
 
