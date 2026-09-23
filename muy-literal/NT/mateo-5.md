@@ -8,7 +8,7 @@
 {bien dados | bendecidos} [son] los q tienen hambre y sed de rectitud, xq pues asi ellos estarán {llevados a {la pastura[^pastura] | un jardin} y {saciados/llenados | dado mucha hierba}}.
 {bien dados | bendecidos} [son] los misericordiosos, pues asi ellos {recibirán/alcanzarán | serán tratados con} misericordia.
 {bien dados | bendecidos} [son] los {puros/claros | hechos asi como son | cuales abajo estan hechos} del corazón, por ellos verán a dios.
-{bien dados | bendecidos} [son] los {pacificadores | q se comportan pacificamente | q crean paz}, por ellos estarán llamados hijos del {dios | emperador | pontestado empoderado}[^dios]
+{bien dados | bendecidos} [son] los {pacificadores | q se comportan pacificamente | q crean paz}, por ellos estarán llamados hijos del {emperador | pontestado empoderado}[^dios]
 {bien dados | bendecidos} [son] los q padecen persecución por causa de rectitud, por suyos es el reino de los uranoses/cielos.
 {bien dados | bendecidos} sois cuando os difaman (hacen mala vuestra reputacion), ~~y~~ os persigan, y digan toda clase de herida contra vosotros, mintiendo por causa de mi;
 gozad y alegrad/saltad, por la recompensa de vosotros es grande en los uranoses/cielos; así les persiguieron a los profetas, los {frente a | q fueron antes de} vosotros.
