@@ -37,7 +37,7 @@ de eso, yo os digo: no {juramentes | estabelices límites} de nada, ni en el ura
 ni en la tierra, xq es el reposapiés de sus pies; ni por jerusalenes[^jerusalen] xq es [{la poblacion | el pueblo}](../conceptos/ciudad.md) del rey.
 ni en su cabeza/mente {juramentes | estabelices límites}, xq no puedes hacer brillante/blanco o negro a un solo cabello.
 sobre eso, sea vuestro dicho: sí, sí; y no, no; [y] sobre esto: cualquier [cosa] más [d] esto, procede de {[intenciones] malicias | la maldad}.
-oísteis que se dijo: ojo contra ojo y diente contra diente[^contra];
+oísteis que se dijo: ojo {frente a | contra/opuesto} ojo y diente {frente a | contra/opuesto} diente[^contra];
 yo sobre eso, os digo: no {resistirse | oponerse | ponerse en contra} al malo, sino cualquiera q te de un manotazo sobre tu mejilla derecha, vuélvele tb la otra;
 y a él resolviendo a llevarte al tribunal para quitarte tu ropa interior, {ríndase a él | permitele}, y [dale] tu {ropa exterior | manto} [tb];
 y cualquiera q a ti te forzará ir una milla somete con el dos;
